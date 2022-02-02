@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jimmyk1ll3r
+- 👀 I’m interested in Gaming Section
+- 🌱 I’m currently trying to climb LoL
+- 📫 You can join to discord server for more info : https://discord.gg/D3EwT2BbY9
